@@ -30,3 +30,8 @@ Insights
 4.To get rid of any biases, check the performance evaluation criteria on a regular basis.
 5.Establish leadership development initiatives for women to get them ready for executive positions.
 6.Encourage younger workers to advance into mid-level and senior positions to increase generational diversity.
+
+![image](https://github.com/user-attachments/assets/3c41f420-b26a-4682-8854-aad1274190da)
+![image](https://github.com/user-attachments/assets/a0ff5460-f6d8-4d7f-a12a-072e55782ad7)
+
+
