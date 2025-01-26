@@ -23,6 +23,7 @@ Departmental & Regional Variances: Gender inequalities are more pronounced in so
 Prospects for Inclusivity: Overall inclusiveness can be enhanced by putting in place mentorship programs, flexible work schedules, and focused recruitment and advancement initiatives.
 
 Insights 
+
 1.Pay particular attention to hiring programs for women, particularly in higher positions.
 2.To provide equal opportunity for men and women, review and update the promotion standards.
 3.By identifying and addressing the main reasons why women leave the company, you may address retention issues.
